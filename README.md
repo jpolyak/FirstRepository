@@ -1,2 +1,3 @@
 # FirstRepository
-reposotory description lalala
+
+Yoy! I wanna take you to a gay bar!
